@@ -1,10 +1,8 @@
-# Hello!
+"_And now as I said concerning faith--faith is not to have a perfect knowledge of things; therefore if ye have faith ye hope for things which are not seen, which are true._"
 
-My name is llamaking136 and I program.
+\- Alma 32:21.
 
-Check out my pinned repos!
-I may or may not commit from time to time.
 
-![](https://komarev.com/ghpvc/?username=llamaking136)
+"_I glory in plainness; I glory in truth; I glory in my Jesus, for he hath redeemed my soul from hell._"
 
-ps if you need to chat ask me about my discord
+\- 2 Nephi 33:6.
